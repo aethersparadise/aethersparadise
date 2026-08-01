@@ -4,4 +4,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♪
 
-'  ˚ ₊ ︵ i fuucking love final fantasy kingdom hearts oughhh im droolinfg..,anyways chck my strawpage for any actual info bc im not using this shitty keyboard any longer!!!11!1!
+'  ˚ ₊ ︵ i fuucking love final fantasy and kingdom hearts oughhh im droolinfg..,
+
+˚ ₊        anyways chck my strawpage for any actual info bc im not using this shitty keyboard any longer!!!11!1!

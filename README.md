@@ -23,3 +23,7 @@ ____________________________________________________
 
 ' a scattered dream that's like a far-off memory. a far-off memory that's like a scattered dream. i want to line the pieces up — yours and mine . '
 - soraaaAAAAAAAAAAAA SORA SORA SORA
+  
+ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
+
+<img width="1124" height="843" alt="soraaaa" src="https://github.com/user-attachments/assets/a5439bea-36b1-4c0f-9c44-f8541fb87c94" />

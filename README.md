@@ -1,4 +1,4 @@
-##  '  ㅤㅤ im so blue......
+##  '  this is more optimised for phone ok..,??
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 

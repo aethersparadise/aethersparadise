@@ -18,3 +18,5 @@ imean what who ssaid that!!!! DISTRACTS YOU. LOOK ITS SORA GUYS!!!!LOOK OOO YOUR
 <img alt="File" class="GUNS__ab-10afa642-b9972fef-28a18010" src="https://r2.guns.lol/5f06c752-69de-4963-ac85-082238b6e3bf.webp">
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
+
+____________________________________________________

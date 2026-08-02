@@ -6,7 +6,7 @@
 <img width="1022" height="1078" alt="clouuiudddd" src="https://github.com/user-attachments/assets/86b78bb5-e81f-4887-a0d6-51bb832b0c19" />
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♪
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♪
 
 '  ˚ ₊ ︵ i fuucking love final fantasy and kingdom hearts oughhh im droolinfg..,
 

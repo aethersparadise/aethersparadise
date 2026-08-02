@@ -9,7 +9,7 @@
 
 '  ˚ ₊ ︵ i fuucking love final fantasy and kingdom hearts oughhh im droolinfg..,
 
-˚ ₊        anyways chck my strawpage for any actual info bc its 1am atm and im not using this HORRIBLE keyboard any longer!!!11!1! 
+˚ ₊        anyways chck my strawpage for byi + dni or whatever bc its 1am atm and im not using this HORRIBLE keyboard any longer!!!11!1! 
 
 
 imean what who ssaid that!!!! DISTRACTS YOU. LOOK ITS SORA GUYS!!!!LOOK OOO YOURE GETTIGNN SO DISTRACTED RN

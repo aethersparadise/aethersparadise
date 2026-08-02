@@ -20,6 +20,7 @@ imean what who ssaid that!!!! DISTRACTS YOU. LOOK ITS SORA GUYS!!!!LOOK OOO YOUR
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 
+this page probably looks like shit on anything that isnt my phone but whatever
 ____________________________________________________
 
 ' a scattered dream that's like a far-off memory. a far-off memory that's like a scattered dream. i want to line the pieces up — yours and mine . '

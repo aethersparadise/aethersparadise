@@ -2,8 +2,7 @@
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 
-<img width="548.5" height="630" alt="cloudthingimade2 0" src="https://github.com/user-attachments/assets/b099c50c-710b-4bae-9a8a-4a3e35e1740a" />
-
+<img width="1022" height="1078" alt="clouuiudddd" src="https://github.com/user-attachments/assets/86b78bb5-e81f-4887-a0d6-51bb832b0c19" />
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ♪
 

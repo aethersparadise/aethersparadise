@@ -8,7 +8,7 @@
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 ♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪
 
-'  ˚ ₊ ︵ i fuucking love final fantasy and kingdom hearts oughhh im droolinfg..,
+'  ˚ ₊ ︵ i fuucking love final fantasy , kingdom hearts and pokemon oughhh im droolinfg..,
 
 ˚ ₊        anyways chck my strawpage for byi + dni or whatever bc its 1am atm and im not using this HORRIBLE keyboard any longer!!!11!1! 
 

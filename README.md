@@ -10,6 +10,8 @@
 
 '  ˚ ₊ ︵ i fuucking love final fantasy , kingdom hearts and pokemon oughhh im droolinfg..,
 
+mostly into ff7.. (but I am trying to get more of the games ! im lowkey broke thiugh so give me about a month or so to get more ok....)
+
 ˚ ₊        anyways chck my strawpage for byi + dni or whatever bc its 1am atm and im not using this HORRIBLE keyboard any longer!!!11!1! 
 
 

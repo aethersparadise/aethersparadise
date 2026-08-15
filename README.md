@@ -1,9 +1,9 @@
 
 
+
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 
-<img width="2044" height="2216" alt="soraaaaa" src="https://github.com/user-attachments/assets/50a565b0-2550-405d-a91a-7ff8eae3bdf9" />
-
+<img width="2045" height="3045" alt="soraaaaaaaaa" src="https://github.com/user-attachments/assets/35e9d1cb-9c87-4816-b92b-5373250983ca" />
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚
 ♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪♪

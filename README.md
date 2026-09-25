@@ -9,7 +9,7 @@
 
 '  ˚ ₊ ︵ i fuucking love final fantasy , kingdom hearts and pokemon oughhh im droolinfg..,
 
-'  ˚ ₊ ︵  yes my fav characters are sora and vanitas!!! how could you te;ll!!!!!
+'  ˚ ₊ ︵  yes my fav characters are sora, kieran and vanitas!!! how could you te;ll!!!!!
 
 
 ㅤㅤㅤ˚₊‧꒰ა ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ໒꒱ ‧₊˚

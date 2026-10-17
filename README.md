@@ -2,7 +2,7 @@
 
 oh lookie here guys!! kieran and sora!!!!! oh wow!!!!! aw so cute!!!
 
-p.s. could you tell this is a placeholder bc i cqnt be bothered to finish this? yes? ok. also look at my kieran x aether SLOP
+p.s. could you tell this is a placeholder bc i cqnt be bothered to finish this? yes? ok. also look at my SLOP
 
 
 <img src="https://img.sanishtech.com/u/9350527d7fdae7e8c5aeb2dc0aa73324.png" alt="50770" width="711" height="379" loading="lazy" style="max-width:100%;height:auto;">
